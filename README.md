@@ -62,4 +62,4 @@ This Privacy Policy may be updated as needed. Any changes will be posted on this
 
 ### 6. Contact Us
 
-📧 [your-email@example.com]
+📧 jiinispring@gmail.com
