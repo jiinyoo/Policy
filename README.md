@@ -31,7 +31,7 @@
 
 ### 6. 문의
 
-📧 [your-email@example.com]
+📧 jiinispring@gmail.com
 
 ---
 
